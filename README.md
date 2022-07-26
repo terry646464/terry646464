@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @terry646464
 - 🌱 I’m currently learning ...
-- 📫 How to reach me ... DON'T
+- 📫 How to reach me ...DON'T
 -💕 I'm taking!!!!!
 
 <!---
