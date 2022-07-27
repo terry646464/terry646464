@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @terry646464
 - 🌱 I’m currently learning ...
 - 📫 How to reach me ...DON'T
--💕 I'm taking!!!!!
+-💕 I'm taken!!!!
 
 <!---
 terry646464/terry646464 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
